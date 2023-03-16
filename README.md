@@ -1,1 +1,1 @@
-https://johnsukadoe.github.io/rsschool-cv/index
+https://johnsukadoe.github.io/rsschool-cv/
